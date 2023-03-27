@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 😉 Just In Case: I like to teach, I like to be taught. I like to exchange and share experiences. 
    - 📥️ You can reach me on : [Gmail](dsndjebayi@aimsammi.org)
    - 📫 Start a chat on : [Telegram](https://t.me/@Ndam_s)
-   - 🤗 You can also follow me on : LinkedIn](https://www.linkedin.com/in/ndams55/) and [Twitter](https://twitter.com/dsndjebayi) 
+   - 🤗 You can also follow me on : [LinkedIn](https://www.linkedin.com/in/ndams55/) and [Twitter](https://twitter.com/dsndjebayi) 
