@@ -1,5 +1,5 @@
 ### Hi there 👋, My name is Damaris, 
-I am a Computer Sciences Engineer, and currently a master student in the African Master In Machine Intelligence program funded by Google and Facebook. I wish to contribute to the research and to the developpement of solutions for various kinds of problems; especially in the field of biology. 
+I am a Computer Sciences Engineer, and currently a master student in the African Master In Machine Intelligence program funded by Google and Facebook. I wish to contribute to top research and developpement project on various kinds of problems; especially in the field of biology. 
 <!--
 **ndams55/ndams55** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
